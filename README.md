@@ -1,0 +1,1 @@
+# hajjigo-privacy
